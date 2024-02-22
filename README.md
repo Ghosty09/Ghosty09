@@ -1,2 +1,3 @@
-Hi I am Ghosty09😎🍕
-I am the model maker of Dusselfps
+
+
+https://www.google.com/?client=safari&channel=ipad_bm
